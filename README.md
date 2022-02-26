@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Ash or Amnesia.  It/its  pronouns.
+- 👀 I'm here to lurk for the moment.
+- 📫 How to reach me ...  https://starlit-mayhem/carrd.co
